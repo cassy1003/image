@@ -2,6 +2,8 @@ http://www.lgtm.in/
 
 ![LGTM](http://www.lgtm.in/p/qH9YOitkq)
 
+![LGTM](http://livedoor.4.blogimg.jp/nwknews/imgs/e/b/eb227881.gif)
+
 ![LGTM](http://www.lgtm.in/p/8mjwSxWNp)
 
 ![LGTM](http://www.lgtm.in/p/MyjG4YzKn)
